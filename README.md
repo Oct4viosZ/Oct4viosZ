@@ -13,4 +13,13 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+--> This is my repository, the idea this it is a a stock my projects;
+Check my iniciatives: 
+Oitoo:
+https://8ooitoo.wordpress.com/
+NerdWerk:
+https://www.youtube.com/channel/UCR0h2uUA5tlYtLuTK6s-mQQ
+https://discord.gg/S7yJEXp
+
+Mensions:
+RanomWare has founded and works in a iniciatives
