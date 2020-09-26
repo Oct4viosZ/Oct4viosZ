@@ -18,7 +18,7 @@ Check my iniciatives:
 Oitoo:
 https://8ooitoo.wordpress.com/
 NerdWerk:
-https://www.youtube.com/channel/UCR0h2uUA5tlYtLuTK6s-mQQ
+https://www.youtube.com/channel/UCR0h2uUA5tlYtLuTK6s-mQQ <p>
 https://discord.gg/S7yJEXp
 
 Mensions:
