@@ -27,4 +27,5 @@ https://www.youtube.com/channel/UCR0h2uUA5tlYtLuTK6s-mQQ
 https://discord.gg/S7yJEXp
 
 Mensions:
+<p>
 RanomWare has founded and works in a iniciatives
