@@ -14,11 +14,16 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 --> This is my repository, the idea this it is a a stock my aimless projects;
-Check my iniciatives: 
+Check my iniciatives:
+<p>
 Oitoo:
+<p>
 https://8ooitoo.wordpress.com/
+<p>
 NerdWerk:
-https://www.youtube.com/channel/UCR0h2uUA5tlYtLuTK6s-mQQ <p>
+<p>
+https://www.youtube.com/channel/UCR0h2uUA5tlYtLuTK6s-mQQ 
+<p>
 https://discord.gg/S7yJEXp
 
 Mensions:
